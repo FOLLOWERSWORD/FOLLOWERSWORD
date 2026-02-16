@@ -21,9 +21,9 @@ i am almost always offtab or in the editor . please w2i if you'd like to get my 
 I would prefer making friends who like phighting.. Sorrryyyyyyy.. it's literally just a brainworm special interest it's been infesting my brain for 3 years 
 (although dsaf has been infesting it for even longer)
 
-I'm almost 18 dni if ur fourteen years OLLDDDDDDDDDDDD
+18yo . 14 and under dni
 
-I AM A MIRRORSHARING / KINDA REALLY SELECTIVE SHARING SWORD PHIGHTING YUMESHIPPER/SELFSHIPPER I DONT CARE SHUT UP LEAVE ME ALONE . IF YOURE UNCOMFORTABLE WITH THIS HIDE ME OR JUST NEVER INTERACT WITH ME OK?
+i selfship with phighting characters
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=zbr507sz6hmcwi68id24fiz7m&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=true&profanity=false&bar_color=8f3200&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
